@@ -11,7 +11,7 @@ or [view the current CV.](./2020-06-06_SNU_CV.pdf)
 Click [here to read the letter](./2020-06-27_Berkeley_letter.md) or 
 or [view the current CV.](./2020-06-27_Berkeley_CV.pdf) 
  
-## Center for Scientific Collaboration and Community Engagement, July 24, 2020
+## Center for Scientific Collab and Community Engagement, 2020
  
 Click [here to read the letter](./2020-07-23_CSCCE_letter.md) or 
 or [view the current CV.](./2020-07-23_CSCCE_CV.pdf) 
