@@ -56,3 +56,8 @@ or [view the current CV.](./2022-06-29_SSPF_CV.pdf)
 Click [here to read the letter](./2022-07-05_TINS_letter.md) or 
 or [view the current CV.](./2022-07-05_TINS_CV.pdf) 
  
+## Alpine Meadows, September 12,  2024
+ 
+Click [here to read the letter](./2023-09-12_Alpine_letter.md) or 
+or [view the current CV.](./2023-09-12_Alpine_CV.pdf) 
+ 
