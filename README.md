@@ -1,6 +1,11 @@
 # Job Search
  
 This GitHub repository contains a few of the cover letters and CVs I used to apply for jobs. Below is a snap shot of each letter with links to the full letter and CV below.
+## Lake Tahoe Community College, June 6, 2020
+ 
+Click [here to read the letter](./2020-06-06_LTCC_letter.md) or 
+or [view the current CV.](./2020-06-06_LTCC_CV.pdf) 
+ 
 ## Sierra Nevada University, June 6, 2020
  
 Click [here to read the letter](./2020-06-06_SNU_letter.md) or 

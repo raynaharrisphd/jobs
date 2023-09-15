@@ -1,0 +1,9 @@
+## Lake Tahoe Community College, June 6, 2020
+
+I am writing to express my interest in the positive of Biology Adjunct Faculty. I have a BS in Biochemistry and. PhD in Cell and Molecular Biology from the University of Texas at Austin. I currently live in Truckee and am working remotely for the University of California, Davis as a postdoctoral scholar. My current research investigates the neural and molecular mechanisms that regular parental care behavior in pigeons. Most of my current job responsibilities involve data analysis and software development; I mentor a few students, but I have would like to teach more.  
+
+I have 13 years of experience teaching hands-on courses at the college level, including organic chemistry, molecular biology, bioinformatics, and data science. Given the current crisis, many educators are scrambling to turn hands-on classrooms into online classes. I also have three years of experience teaching highly-interactive online courses. Since 2015, I have been teaching The Carpentries Instructor Training program online via Zoom. I have written blog posts about strategies that teachers can use to engage with their learners online and compared the pros and cons of teaching online versus in person. I hope that schools can reopen soon, but I am prepared to teach online and accommodate students who can only participate remotely.  
+
+This winter, I worked part-time in the Children’s Ski and Snowboard School at Northstar, and I enjoyed connecting with members of the Truckee community through our shared passion for teaching and outdoor adventure. I would like to continue working part-time to support education in the Lake Tahoe area, and I believe that an adjunct instructor position at the Lake Tahoe Community College could be an excellent fit.  
+
+I look forward to learning more about the position and the Biology department.  
