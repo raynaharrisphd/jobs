@@ -1,4 +1,4 @@
-## Center for Scientific Collaboration and Community Engagement, July 24, 2020
+## Center for Scientific Collab and Community Engagement, July 24, 2020
 
 I am writing to express my interest in the Lead Trainer and Curriculum Development Specialist
 position. I often described myself as a scientist, educator, community-builder, and translator,
